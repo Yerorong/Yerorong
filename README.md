@@ -1,4 +1,4 @@
-# 홍길동
+# 고동현
 - 💬 고동현
 - 💌 Email : kdh1231199@hufs.ac.kr
 - ⭐️ Instagram : [@Yerorong0126](https://www.instagram.com/Yerorong0126)
